@@ -12,3 +12,4 @@ Recapitulando 04/12/2018
 
 Vamos nessa.... Recapitulando tudo!!
 
+Testando o primeiro push para o repositório remoto...
