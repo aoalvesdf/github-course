@@ -9,3 +9,6 @@ Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido =)
 Faça uma doação!!
 
 Recapitulando 04/12/2018
+
+Vamos nessa.... Recapitulando tudo!!
+
